@@ -1,2 +1,2 @@
 # Professional-Portfolio
-My Professional Portfolio for my skills
+My professional portfolio for my skills
